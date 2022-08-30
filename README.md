@@ -6,4 +6,4 @@
 
 (just kidding, here's my email address: leonardcsteffens@gmail.com)
 
-
+Check out my photography blog <a href="https://www.torioflight.blogspot.com">here.</a>
