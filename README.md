@@ -6,4 +6,4 @@
 
 (just kidding, here's my email address: leonardcsteffens@gmail.com)
 
-Check out my website <a href="http://www.torioflight.blogspot.com">here.</a>
+Check out my website [here.](http://www.torioflight.blogspot.com)
