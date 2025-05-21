@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on many great things
 - 📫 'How to reach me' tutorial coming soon.
 
-(just kidding, here's my email address: leonardcsteffens@gmail.com)
+(just kidding, here's my email address: github.hatching825@passmail.net)
 
 Check out my website [here.](http://www.torioflight.blogspot.com)
